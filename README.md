@@ -7,3 +7,5 @@ merry = meaning someone is joking
 the right to bury your head under the ground
 to look through a peephole, but not open the door
 _vlad
+the meal is sweeter than the dessert, why?
+I looked outside my window at 12 pm and 12 am
